@@ -1,3 +1,3 @@
-Arcadia Collective Website
+Arcadia Collective Detroit Website
 
-More to come!! Very exciting!!
+More to come! Very exciting!
