@@ -1,3 +1,3 @@
 Arcadia Collective Website
 
-More to come!!
+More to come!! Very exciting!!
